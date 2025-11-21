@@ -59,4 +59,5 @@ $\color{Goldenrod}{\textsf{over 18, under 13, hetalia fan}}$
 <img width="2047" height="60" alt="tumblr-3219f4cddd6e58dd463a61101e40ffd6-28e4e610-2048-fliter-gold-sunset-channel-blue-mode-normal" src="https://github.com/user-attachments/assets/4e56e3c4-3ac1-4e56-bb7f-f297f6f030fa"/>
 
 $\color{Goldenrod}\Huge{\textsf{(⌐□ᴗ□)}}$ <br>
+$\color{Goldenrod}\Huge{\textsf{this is only for ponytown lol}}$ <br>
 <img width="1280" height="429" alt="tumblr_e266a9a017bedb61f583f088ef1c0d7c_dc456a5b_1280" src="https://github.com/user-attachments/assets/0fd3aa69-32f3-4b5f-89bb-4dbb294be22d"/>
